@@ -1,2 +1,2 @@
-my second readme fot today updated
+my second readme for today updated 
 
